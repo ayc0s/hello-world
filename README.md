@@ -13,4 +13,4 @@ introvert so i might not talk first come to me please ❤︎ ᶻ 𝗓 𐰁
 
 
 ✿ can add on discord ✿
-
+tryna understand the website 
