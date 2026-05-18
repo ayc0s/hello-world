@@ -6,6 +6,8 @@ about me I like watching movies/series and sometimes animes, playing games, some
 
 
 ────୨ৎ────
+
+
 introvert so i might not talk first come to me please ❤︎ ᶻ 𝗓 𐰁
 
 
